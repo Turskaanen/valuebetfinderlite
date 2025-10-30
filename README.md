@@ -8,4 +8,6 @@ made by turskanen
 
 Any questions or development ideas? My email is: turska.offical@gmail.com    you can dm there if you have any questions or development ideas!
 
-Thanks.
+And if this work and is good then please click star!
+
+Thanks!
