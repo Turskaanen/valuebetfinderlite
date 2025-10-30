@@ -12,3 +12,6 @@ Thanks!
 
 
 (I am not responsible if this does not work for any reason or if you lose your money betting. I will not refund lost money.)
+
+
+JOIN TO MY NEW FORUM: https://iqbet.createaforum.com/
