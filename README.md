@@ -6,12 +6,9 @@ And you just have to copy the code and paste it into the main.py file and press 
 
 Any questions or development ideas? My email is: turska.offical@gmail.com    you can dm there if you have any questions or development ideas!
 
-And if this work and is good then please click star! And MORE sport bet scripts coming soon, so why you don't would follow me? :d 
-
 Thanks!
 
-
-(I am not responsible if this does not work for any reason or if you lose your money betting. I will not refund lost money.)
-
-
 JOIN TO MY NEW FORUM: https://iqbet.createaforum.com/
+
+
+THIS OFFER IS LIMITED TIME FREE (2 weeks for free then pay 5€ lifetime) Buy this from here: https://iqbet.mysellauth.com/product/valuebet-finder-lite
