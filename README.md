@@ -11,3 +11,6 @@ Any questions or development ideas? My email is: turska.offical@gmail.com    you
 And if this work and is good then please click star!
 
 Thanks!
+
+
+(I am not responsible if this does not work for any reason or if you lose your money betting. I will not refund lost money.)
